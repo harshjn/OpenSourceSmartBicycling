@@ -19,7 +19,7 @@ We aim to replace the plastic wheels with metal wheels by 2024.
 During this time, we will keep posting tutorials for our customers to keep increasing their knowledge about bicycles. 
 
 # Our Business Strategy
-We are a family run business from over 40 years, and we aim to remain free from investors at all times, and keep our intentions not laser-focussed on profits, but also support our customers and most importantly, the environment. You will consistently find our prices towards the lower segments among the competition and we can even make our balance sheet transparent if it doesn't harm our business (I don't know what would be good or bad for our business yet).  Like any publicly traded company, we will keep our figures transparent, and invest most of our earnings into technology. 
+We are a family run small scale business from over 40 years, and we aim to remain free from investors at all times, and keep our intentions not laser-focussed on profits, but also support our customers and most importantly, the environment. You will consistently find our prices towards the lower segments among the competition and we can even make our balance sheet transparent if it doesn't harm our business (I don't know what would be good or bad for our business yet).  Like any publicly traded company, we will keep our figures transparent, and invest most of our earnings into technology. 
 We don't expect you to believe us, but we would be happy to give tours to interested folks to visit our manufacturing place any time as well, to get exposure and our lifestyles and business methods will speak more to you.
 
 # Our Products:
